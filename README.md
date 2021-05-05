@@ -1,0 +1,2 @@
+- 👋 Hallo zusammen, ich bin der Yussef 16 Jahre jung und Programmiere Hobbymäßig seit 3 Jahren.
+- 📫 Kontaktieren kannst du mich über Discord: JavaExceptions#2219
